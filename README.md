@@ -21,4 +21,5 @@
 
 ## Автор
 
-[Telegram: @artem_av1ator](https://t.me/artem_av1ator)
+[Telegram](https://t.me/artem_av1ator)
+Titov Artem
