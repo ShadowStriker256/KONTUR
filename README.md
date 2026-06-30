@@ -21,4 +21,4 @@
 
 ## Автор
 
-TG: Artem_Av1ator
+[Telegram: @artem_av1ator](https://t.me/artem_av1ator)
