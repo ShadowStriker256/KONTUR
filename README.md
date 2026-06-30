@@ -21,5 +21,4 @@
 
 ## Автор
 
-[Telegram](https://t.me/artem_av1ator)
-Titov Artem
+Написать автору игры: [Telegram](https://t.me/artem_av1ator)
